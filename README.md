@@ -1,2 +1,2 @@
 - Hi! 👋 I'm [@usedtested](https://github.com/usedtested)
-- My Telegram ✈: [@sindubs](t.me/sindubs)
+- My Telegram ✈: [@sindubs](https://t.me/sindubs)
